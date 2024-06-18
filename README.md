@@ -15,6 +15,7 @@ A Junior Software Engineer, Graduate of Electronic and Computer Engineering from
 - 😄 Pronouns: he/him
 - ⚡ Fun fact:
     * I set crazy and very high goals that sometimes friends laugh at me that I can't achieve em but I end up doing...😄
+    * I am a Crypto Enthusiast, Researcher and Investor 📈🔥🤑
     * I love helping people solve tech related problems
     * I love cyber security; I bet you didn't know before now 😄
 
